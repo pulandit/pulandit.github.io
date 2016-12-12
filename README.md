@@ -1,1 +1,0 @@
-# pulandit.github.io
